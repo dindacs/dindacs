@@ -1,1 +1,1 @@
-### separate from the crowd, standing on the corner bookcase of the shop wkwk
+## Separated from the crowd, standing on the shop's corner bookcase wkwk
